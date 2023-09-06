@@ -1,4 +1,4 @@
-### Got rick rolled
+### Got rickrolled
 
 <a href="https://github.com/Nathtruyts">
 
